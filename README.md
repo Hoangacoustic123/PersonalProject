@@ -1,1 +1,1 @@
-These are my personal project. Please have a look. Thank you!
+These are my personal projects. Please have a look. Thank you!
